@@ -1,8 +1,8 @@
 ---
+title: Ballin' with Thee
+author: Joshua Krafchin
+category: Short Story
 layout: post
-title: "Ballin' with Thee."
-author: "Joshua Krafchin"
-categories: Short Story
 ---
 
 The first time I met Thee was at AAU tryouts.
