@@ -4,7 +4,7 @@ author: Joshua Krafchin
 category: Reveal
 layout: post
 ---
-Warning: This post includes extensive discussion of erections, masturbation, pornography and incest. If any of this makes you uncomfortable for any reason or in any way, please tear your eyes away and read a different article here.
+*Warning: This post includes extensive discussion of erections, masturbation, pornography and incest. If any of this makes you uncomfortable for any reason or in any way, please tear your eyes away and read a different article here.*
 \\
 \\
 \\
